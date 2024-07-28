@@ -20,7 +20,7 @@ Profileme.dev
 * I am Computer Science Engineer(2024) Graduate from IET DAVV,Indore with a passion for logical and critical thinking. I have a deep love for mathematics and  consider myself a tech enthusiast.
 
  
-  During my college years, I maintained an impressive 8.2 CGPA, demonstrating my commitment to academic excellence. Moreover, I possess strong communication skills and excel in working within a team. I have a profound understanding of people and their psychology, which allows me to foster effective collaboration and achieve common goals.
+  During my college years, I maintained an impressive 8.37 CGPA, demonstrating my commitment to academic excellence. Moreover, I possess strong communication skills and excel in working within a team. I have a profound understanding of people and their psychology, which allows me to foster effective collaboration and achieve common goals.
 
   I take pride in my ability to build connections and establish fruitful relationships with students, professors, professionals from various fields, and individuals from other institutes. This has allowed me to create a strong network that spans across different domains and industries.
   
